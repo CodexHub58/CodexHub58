@@ -12,4 +12,4 @@ Pronouns: He/Him 😄
 
 Fun fact: I'm a huge fan of sci-fi novels and enjoy playing chess in my free time ⚡.
 
-Feel free to customize it as per your preferences! 😊
+
